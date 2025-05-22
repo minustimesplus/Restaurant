@@ -1,19 +1,19 @@
 Impressum
 Angaben gemäß § 5 TMG
-QQ Eat Company GmbH
-Kanalstraße 10
-70182  Stuttgart
-Handelsregisternummer: HRB 774455
-Registergericht: Amtsgericht Stuttgart
+XXX GmbH
+Restaurant Ramsbachtal da Mariusz
+Taldorfer Str. 59, 70599 Stuttgart
+Handelsregisternummer: XXX
+Registergericht: Amtsgericht Stuttgart ?
 
 Vertreten durch die Geschäftsführer:
-Qiu Jianfeng
+XXXX
 
 Kontakt
-Tel.: 071123849375
-E-Mail: jf_qiu@hotmail.com
+Tel.: 071139687733
+E-Mail: mhgn@wp.pl
 Umsatzsteuer
-Umsatzsteuer-Identifikationsnummer gemäß §27 a Umsatzsteuergesetz: DE285342230
+Umsatzsteuer-Identifikationsnummer gemäß §27 a Umsatzsteuergesetz: DE XXX
 
 Wir sind nicht bereit oder verpflichtet, an Streitbeilegungsverfahren vor einer Verbraucherschlichtungsstelle teilzunehmen.
 
